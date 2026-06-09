@@ -1,4 +1,4 @@
-# Assalamualaikum 👋, I'm Pathan Zaki
+#👋 I'm Pathan Zaki
 
 ## 🚀 About Me
 
